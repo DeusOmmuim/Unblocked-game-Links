@@ -1,5 +1,3 @@
-Changes And Why I took down the old repo-
-
-WHY idk when i say it
+Why Im Restarting Go [here](https://github.com/UnClausus-Ludi/Deleted-Repo-Why)
 
 Games Links Coming on - october 1
