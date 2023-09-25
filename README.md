@@ -1,3 +1,3 @@
-Why Im Restarting Go [here](https://github.com/UnClausus-Ludi/Deleted-Repo-Why)
-
-Games Links Coming on - october 1
+## Updates We Restarting Cause Old Repo was a mess
+New System Weekly Updates
+More Links Once Broken Will Be Removed
