@@ -1,5 +1,5 @@
 ## Updates We Restarting Cause Old Repo was a mess
-## New System Weekly Updates More Links Once Broken Will Be Removed
+## New System  History Had A repo with 60 stars and got banned
 
 https://76ezgames.com/
 
