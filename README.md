@@ -1,6 +1,6 @@
 ## Updates We Restarting Cause Old Repo was a mess
-## New System  History Had A repo with 60 stars and got banned🤫🧏‍♂️
-
+## New System  History Had A repo with 60 stars and got banned
+### 🤫🧏‍♂️
 https://76ezgames.com/
 
 https://joebobjim.onrender.com/
