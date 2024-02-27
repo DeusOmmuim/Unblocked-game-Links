@@ -1,4 +1,5 @@
 @echo off
+Msg * Made By DeusOmmuim on All Socials
  color 02
 :start
 echo %random% %random% %random% %random% %random% %random% %random% %random% %random% %random%
