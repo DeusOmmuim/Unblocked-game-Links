@@ -1,6 +1,7 @@
 ## Updates We Restarting Cause Old Repo was a mess
 ## New System  History Had A repo with 60 stars and got banned
 ### 🤫🧏‍♂️
+
 https://76ezgames.com/
 
 https://joebobjim.onrender.com/
@@ -149,3 +150,16 @@ https://op1um.pages.dev/
 https://bewildered-tweed-jacket-pike.cyclic.app/
 
 https://opium-games.onrender.com/
+
+https://x.a.ubiq.org/
+
+https://s.j0.icom.org.np/
+
+https://w.q.sagesinst.org/
+
+https://r.j0.icom.org.np/
+
+https://vp.c.gracemp.org/
+
+
+
