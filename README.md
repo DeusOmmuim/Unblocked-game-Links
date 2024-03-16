@@ -2,6 +2,8 @@
 ## New System  History Had A repo with 60 stars and got banned
 ### 🤫🧏‍♂️
 
+https://szvycentral69.vercel.app/
+
 https://76ezgames.com/
 
 https://joebobjim.onrender.com/
