@@ -4,6 +4,10 @@
 
 https://szvycentral69.vercel.app/
 
+https://centralfornerds.vercel.app/
+
+https://szvycentral.pages.dev/
+
 https://76ezgames.com/
 
 https://joebobjim.onrender.com/
