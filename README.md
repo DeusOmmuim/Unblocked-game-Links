@@ -2,7 +2,7 @@
 ## New System  History Had A repo with 60 stars and got banned
 ### 🤫🧏‍♂️
 
-https://szvycentral69.vercel.app/
+
 
 https://centralfornerds.vercel.app/
 
