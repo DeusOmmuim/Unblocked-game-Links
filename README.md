@@ -1,6 +1,6 @@
 ## Updates We Restarting Cause Old Repo was a mess
 ## New System  History Had A repo with 60 stars and got banned
-### 🤫🧏‍♂️
+### 11/15/25 confirmation end of support unless someone makes a pull request removing 404 and shutdown sites
 
 
 
